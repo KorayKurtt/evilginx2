@@ -1,1 +1,0 @@
-adamı öldürüyolarmış işin sonunda
